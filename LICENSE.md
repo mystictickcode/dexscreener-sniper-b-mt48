@@ -1,4 +1,4 @@
-# 
+# advanced Bot for dexscreener sniper bot | degen-coin-scanning & take-profit offers the most advanced dexscreener sniper bot, with degen-coin-scanning and take-profit. Ideal for
 
 
 
